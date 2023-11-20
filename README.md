@@ -1,2 +1,2 @@
-# Yoshkar_OLA_supersoosik
+# Yoshkar_OLA_potayev
 supersoosik^s_firstprjkt

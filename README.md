@@ -1,0 +1,2 @@
+# Yoshkar_OLA_supersoosik
+supersoosik^s_firstprjkt
